@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @C029s-MOC
 - 👀 I’m interested in Arcade rhythm games , VTuber , Vanlife , VR , FPS and more
 - 🌱 I’m currently learning GIS , PC building , Basic engineering , Car electronics and modifications
-- 💞️ I’m looking to collaborate on Car projects , Travelling and RVs , VTuber affairs , VIP protectionwith advanced weaponry and making something extraordinary
+- 💞️ I’m looking to collaborate on Car projects , Travelling and RVs , VTuber affairs , VIP protection with advanced weaponry and making something extraordinary
 - 📫 How to reach me :
 https://muselink.cc/211839390
 
